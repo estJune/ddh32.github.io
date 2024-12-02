@@ -1,3 +1,3 @@
-# ddh32.github.io
+# Derrick Hicks
 
 https://estJune.github.io
